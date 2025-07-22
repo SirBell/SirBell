@@ -1,5 +1,5 @@
 # 💫 About Me:
-Yooo...! SirBell is here..!<br><br>Your Trusted and capable guy. w<br>The uptime Alchemist.<br>
+Yooo...! SirBell is here..!<br><br>Your Trusted and capable guy.<br>The uptime Alchemist.<br>
 
 
 ## 🌐 Socials:
